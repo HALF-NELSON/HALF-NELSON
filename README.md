@@ -21,5 +21,5 @@
 <br>
 <img width="600" height="48" alt="tumblr_bcc5be8d0b7efb072c62f592d3347982_691ad036_640" src="https://github.com/user-attachments/assets/41b79598-9561-46af-be2d-96c6ba562f21" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fifmxhw35mjoyzt3em7cq2ze3y&cover_image=true&theme=novatorem&show_offline=true&background_color=f7ae39&interchange=false&profanity=false&hide_remaster=false&bar_color=f7ae39&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fifmxhw35mjoyzt3em7cq2ze3y&cover_image=true&theme=novatorem&show_offline=true&background_color=52b5c4&interchange=false&profanity=false&hide_remaster=false&bar_color=52b5c4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <br>
