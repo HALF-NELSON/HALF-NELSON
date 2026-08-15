@@ -9,8 +9,17 @@
 <img width="600" height="83" alt="tumblr_de89245c77febe37d222cc348821eb42_26642e7c_640" src="https://github.com/user-attachments/assets/506ed2a6-ab7b-4d8e-9c3d-6f27eadc9d6d" />
 <br><br>
  <sub><a href="https://treatgalore.straw.page/" target="_blank">strawpage</a>　　　　<a href="https://guns.lol/haliosis" target="_blank">guns</a>　　　　<a href="https://halmarched.atabook.org/" target="_blank">ata</a></sub>
+ <br><br>
  
 <img width="387" height="260" alt="tumblr_dc1d3cb0461a84861f89115aa1434e6e_e1c6d05e_400" src="https://github.com/user-attachments/assets/1896ed12-2966-4705-b28f-00e92f681186" />
+<br><br>
+
+*I follow cool people here.*
+
+***𝒹an　𝒹unne　　ꪗume　╱　ᴋin***
 
 <br>
 <img width="600" height="48" alt="tumblr_bcc5be8d0b7efb072c62f592d3347982_691ad036_640" src="https://github.com/user-attachments/assets/41b79598-9561-46af-be2d-96c6ba562f21" />
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fifmxhw35mjoyzt3em7cq2ze3y&cover_image=true&theme=novatorem&show_offline=true&background_color=f7ae39&interchange=false&profanity=false&hide_remaster=false&bar_color=f7ae39&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<br>
