@@ -18,6 +18,8 @@
 
 ***𝒹an　𝒹unne　　ꪗume　╱　ᴋin***
 
+*if following someone who’s problematic please let me know !*
+
 <br>
 <img width="600" height="48" alt="tumblr_bcc5be8d0b7efb072c62f592d3347982_691ad036_640" src="https://github.com/user-attachments/assets/41b79598-9561-46af-be2d-96c6ba562f21" />
 
