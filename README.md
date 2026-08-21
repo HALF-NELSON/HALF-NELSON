@@ -8,7 +8,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Merriweather&size=15&duration=2000&pause=100&color=52b5c4&center=true&vCenter=true&width=435&lines=take+some+of+this+it'll+calm+you+down;you+might+as+well+jus'+come+around;just+come+around;just+come+around." alt="Typing SVG" /></a>
 <img width="600" height="83" alt="tumblr_de89245c77febe37d222cc348821eb42_26642e7c_640" src="https://github.com/user-attachments/assets/506ed2a6-ab7b-4d8e-9c3d-6f27eadc9d6d" />
 <br><br>
- <sub><a href="https://treatgalore.straw.page/" target="_blank">strawpage</a>　　　　<a href="https://guns.lol/haliosis" target="_blank">guns</a>　　　　<a href="https://halmarched.atabook.org/" target="_blank">ata</a></sub>
+ <sub><a href="https://treatgalore.straw.page/" target="_blank">strawpage</a>　　　　<a href="https://guns.lol/haliosis" target="_blank">guns</a>　　　　<a href="https://halmarched.atabook.org/" target="_blank">ata</a>　　　　<a href="https://rentry.co/only-god-forgives" target="_blank">rentry</a>　　　　</sub>
  <br><br>
  
 <img width="387" height="260" alt="tumblr_dc1d3cb0461a84861f89115aa1434e6e_e1c6d05e_400" src="https://github.com/user-attachments/assets/1896ed12-2966-4705-b28f-00e92f681186" />
